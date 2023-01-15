@@ -7,4 +7,5 @@ Something unique about myself: I own a sousaphone with a customized bell paintin
 Name: Giancarlo Fruzzetti
 Birthplace: Jacksonville, FL
 Something unique: I race my Fiat Abarth in SCCA (Sports Car Club of America) events.
+1/14/2023
 +++++
