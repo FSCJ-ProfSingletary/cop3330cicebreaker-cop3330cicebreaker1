@@ -1,5 +1,5 @@
 +++++
-Name: David Singletary
-Birthplace: Orlando, FL
-Something unique about myself: I own a sousaphone with a customized bell painting that was a gift from the Stanford Marching Band.
+Name: Yaritza Garcia-Rivera
+Birthplace: Hato Rey, PR
+Something unique about myself: I enjoy volunteering for different causes such as animal rescues, and non-profit organizations. 
 +++++
